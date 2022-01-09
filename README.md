@@ -1,4 +1,4 @@
-Hi! I’m @dvrknightmares! Call me Dale.
+Hi! I’m @Juggalo69! Call me WIKED or Dale.
 
 Heres some info about me:
 
@@ -6,21 +6,21 @@ Birthday: 05.13
 
 Language: ENG, (little) JAP
 
-**FAV colour:** Mint green, And Black
+FAV colour(s): Pink & Blue
 
-FAV games: Peggle
+Games I Love the most: ASR, ASRT, Dragon ball xenoverse 2
 
-FAV input: Pepsi, DiGiorno Pizza
+FAV input: Cherry Coca Cola
 
-FAV output: drawing, learning computer stuff
+Fav output: drawing, learning computer stuff etc
 
-I like to: kill time, make gacha club characters, and mostly... *drumroll* Watching Youtube!
+I like to: kill time, watch youtube
 
-Le Dont like: homework, school, crying uncontrollably
+I Dont like to: homework, school changes, crying uncontrollably, and idk what else
 
 Any words that describe me: Creative, Energetic, Friendly
 
 Social Media
-Discord: mugkid92#2661
-YouTube: Jamshed
+Discord: KIWIKED#4647
+YouTube: KIWIKED
 Twitter: @DirtyzDitch
